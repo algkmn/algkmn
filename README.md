@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @algkmn
-- 📫 How to reach me aligokmen.com
+- 📫 hello [at] aligokmen.com
+- 🔗 www.aligokmen.com
