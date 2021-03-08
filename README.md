@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @algkmn
+- 👋 Hi, I’m Ali Gökmen (@algkmn)
 - 📫 hello [at] aligokmen.com
 - 🔗 www.aligokmen.com
